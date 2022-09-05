@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @ulindc
 - 👀 I’m interested in game
-- 🌱 I’m currently learning internet
-- 💞️ I’m looking to collaborate on short film
+- 🌱 I’m currently learning design communication visual
+- 💞️ I’m looking to collaborate on gaming together
 - 📫 How to reach me sailinniam524@gmail.com
 
 <!---
